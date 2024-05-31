@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **prathmeshwakchaure15@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1TaAsAnqjpn3N2CT0M9atlw8qAZ69HHRR/view?usp=drivesdk](https://drive.google.com/file/d/1TaAsAnqjpn3N2CT0M9atlw8qAZ69HHRR/view?usp=drivesdk)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1TaAsAnqjpn3N2CT0M9atlw8qAZ69HHRR/view?usp=drivesdk](https://drive.google.com/file/d/1qbj1Tz_GVrLzcgHzWxOGnXaTvkf3EfmM/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
